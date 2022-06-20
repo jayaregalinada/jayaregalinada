@@ -1,4 +1,4 @@
-### [Kumusta](https://www.google.com/search?q=kumusta+meaning) Ka <img src="https://c.tenor.com/Wx9IEmZZXSoAAAAi/hi.gif" width="30px" />
+### [Kumusta](https://www.google.com/search?q=kumusta+meaning) Ka <img src="https://c.tenor.com/Wx9IEmZZXSoAAAAi/hi.gif" width="30" />
 
 Hi, I'm **Jay Are Galinada**, Web Developer from 🇵🇭 Philippines, currently working as Senior PHP Developer [@Flexisource IT](https://flexisourceit.com.au) and Instructor [@Uplift Code Camp](https://www.upliftcodecamp.com)
 
