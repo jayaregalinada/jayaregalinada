@@ -16,4 +16,4 @@ I also work as a Senior Backend Developer at [Robert Walters](https://www.robert
 
 I'm always happy to chat about tech, code, or life in general.
 
-React out on [LinkedIn](https://www.linkedin.com/in/jayaregalinada/)
+Reach out on [LinkedIn](https://www.linkedin.com/in/jayaregalinada/)
